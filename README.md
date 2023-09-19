@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about my Toyota Corolla
 - 📫 How to reach me: carrier pigion 
 - 😄 Pronouns: He/He
-- ⚡ Fun fact: In 2019, I was banned from the Disney Springs Rainforest Cafe for 5 years for attempting to mud-wrestle the animatronic Gator 
--->Its almost 2024, I'm coming for you Nile, and this time security won't be able to save you...
+- ⚡ Fun fact: In 2019, I was banned from the Disney Springs Rainforest Cafe for 5 years for attempting to mud-wrestle the animatronic Crocodile
+--> Its almost 2024, I'm coming for you Nile, and this time security won't be able to save you...
